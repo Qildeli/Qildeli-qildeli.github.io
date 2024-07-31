@@ -1,1 +1,0 @@
-# Qildeli-qildeli.github.io
